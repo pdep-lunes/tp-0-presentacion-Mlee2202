@@ -13,6 +13,6 @@
 * Me encanta todo lo relacionado con la ropa, moda y perfumeria.
 * Mi comida favorita son unos fideos con tuco simple y sin complicaciones.
 * Mi actividad favorita es pasar tiempo con mis amigos o pasear.
-* Vi Naruto y One Piece completos.
+* Vi Naruto y One Piece completos. Pero tambien vi otros animes en el pasado como puede ser la saga de Jojo´s.
 * Tengo ascendencia coreana y me encanta la comida coreana.
 
