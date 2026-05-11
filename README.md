@@ -1,4 +1,18 @@
 # tp-0-presentacion-Mlee2202
-### Mariano Ignacio Lee
+## Nombre: Mariano Ignacio Lee 
+## Legajo: 232-9876
 
-![Foto](/imagen.jpg)
+---
+
+![Foto](Foto1.jpg)
+
+---
+
+### Un poco sobre mi
+* Me gusta mucho hacer deporte, volley, boxeo (poquito), natacion, etc.
+* Me encanta todo lo relacionado con la ropa, moda y perfumeria.
+* Mi comida favorita son unos fideos con tuco simple y sin complicaciones.
+* Mi actividad favorita es pasar tiempo con mis amigos o pasear.
+* Vi Naruto y One Piece completos.
+* Tengo ascendencia coreana y me encanta la comida coreana.
+
