@@ -10,7 +10,7 @@
 
 ### Un poco sobre mi
 * Me gusta mucho hacer deporte, volley, boxeo (poquito), natacion, etc.
-* Me encanta todo lo relacionado con la ropa, moda y perfumeria.
+* Me encanta todo lo relacionado con la ropa, moda y perfumeria. Algunas marcas destacadas de perfumes que me gustan son Jean Paul Gaultier, Louis Vuitton, Valentino, Azzaro, Paco Rabane, etc.
 * Mi comida favorita son unos fideos con tuco simple y sin complicaciones.
 * Mi actividad favorita es pasar tiempo con mis amigos o pasear.
 * Vi Naruto y One Piece completos. Pero tambien vi otros animes en el pasado como puede ser la saga de Jojo´s.
